@@ -1,1 +1,1 @@
-karikone rk
+rk stores located at attingal
